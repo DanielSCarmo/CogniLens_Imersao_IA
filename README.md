@@ -1,5 +1,5 @@
 # CogniLens_Imersao_IA 🎓
-(🧠) Nosso projeto consiste no desenvolvimento de um protótipo inicial de óculos integrado com a inteligência artificial Gemini. O dispositivo incluirá uma câmera e um fone de ouvido para a transmissão e recebimento de informações da IA. 🕶️
+(🧠) Nós, como alunos do ensino médio, pensamos num projeto que consiste no desenvolvimento de um protótipo inicial de óculos integrado com a inteligência artificial Gemini. O dispositivo incluirá uma câmera e um fone de ouvido para a transmissão e recebimento de informações da IA. 🕶️ #RevoluçãoEstudantil
 
 *⳹ CogniLens foi criado para atender às necessidades de quem busca um aprendizado mais rápido, personalizado e eficaz. Ideal para: estudantes, profissionais e amantes do conhecimento. É a ponte para seu futuro de realizações e conquistas. ⳼*
 
