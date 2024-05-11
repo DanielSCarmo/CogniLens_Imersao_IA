@@ -25,3 +25,15 @@ CogniLens é a chave para um futuro de aprendizado mais eficiente, envolvente e 
 
 ***Se interessou? Que tal dar uma passada no nosso site! ->*** https://lightcyan-hawk-ynqjrja41pi0nx2n.builder-preview.com/
 
+**• CogniLens vs Aphe Vision Pro:**
+
+😵‍💫 Enquanto o Aphe Vision Pro oferece recursos de realidade aumentada, CogniLens busca apenas te auxiliar no dia a dia, integrando inteligência artificial de última geração para criar uma experiência de aprendizado verdadeiramente transformadora:
+
+🍃**Interação natural:** Comunique-se com a IA Gemini através de comandos de voz simples e intuitivos.
+🙌**Aprendizado personalizado:** Receba o conteúdo da melhor forma possível e da maneira mais eficiente para o seu aprendizado.
+🙂**Ampla gama de funcionalidades:** Explore um universo de possibilidades, desde treinar redações até receber sugestões de moda e ate mesmo tarefas que exijam muito da pessoal, como por exemplo procurar uma palavra específica em um texto gigante ou contas complexas de matemática.
+          **CogniLens é a escolha definitiva para quem busca um aprendizado mais eficaz, envolvente e acessível. Experimente o futuro da educação hoje mesmo!**
+
+
+
+
