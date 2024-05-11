@@ -3,7 +3,7 @@
 
 **• Educação 4.0:** Desbloqueie um Mundo de Aprendizagem Ilimitado com CogniLens 📚
 
-✍️ --Cansado de métodos tradicionais que te prendem em uma caixa?-- Experimente a revolução educacional que transforma a forma como você aprende - CogniLens. Nosso óculos inteligente, impulsionado por inteligência artificial de ponta, abre as portas para um universo de possibilidades:
+✍️ **Cansado de métodos tradicionais que te prendem em uma caixa?** Experimente a revolução educacional que transforma a forma como você aprende - CogniLens. Nosso óculos inteligente, impulsionado por inteligência artificial de ponta, abre as portas para um universo de possibilidades:
 
 **Aprendizado personalizado:** Adaptado ao seu ritmo e estilo de aprendizado, para que você evolua na velocidade da luz.
 **Acesso instantâneo ao conhecimento:** Tire suas dúvidas na hora, a qualquer hora, com a IA Gemini sempre à disposição.
