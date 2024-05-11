@@ -15,7 +15,7 @@ CogniLens é a chave para um futuro de aprendizado mais eficiente, envolvente e 
 
 **• Soluções Inteligentes para Desafios Reais: Experimente a Liberdade de Aprender 📌**
 
-💭 **Imagine um futuro onde o aprendizado se adapta às suas necessidades é seja acolhedor:**
+💭 **Imagine um futuro onde o aprendizado se adapta às suas necessidades e seja acolhedor:**
 
 **Treine redações** para o ENEM sem gastar fortunas em cursos ou correções e obtenha resultados excepcionais.
 **Elimine a indecisão** na hora de se vestir com sugestões personalizadas que valorizam seu estilo.
@@ -25,7 +25,7 @@ CogniLens é a chave para um futuro de aprendizado mais eficiente, envolvente e 
 
 ***Se interessou? Que tal dar uma passada no nosso site! ->*** https://lightcyan-hawk-ynqjrja41pi0nx2n.builder-preview.com/
 
-**• CogniLens vs Aphe Vision Pro:**
+**• CogniLens vs Apple Vision Pro:**
 
 😵‍💫 Enquanto o Aphe Vision Pro oferece recursos de realidade aumentada, CogniLens busca apenas te auxiliar no dia a dia, integrando inteligência artificial de última geração para criar uma experiência de aprendizado verdadeiramente transformadora:
 
