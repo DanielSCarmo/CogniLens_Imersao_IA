@@ -18,4 +18,4 @@ CogniLens é a chave para um futuro de aprendizado mais eficiente, envolvente e 
 **Treine redações** para o ENEM sem gastar fortunas em cursos ou correções e obtenha resultados excepcionais.
 **Elimine a indecisão** na hora de se vestir com sugestões personalizadas que valorizam seu estilo.
 **Receba orientação instantânea** para qualquer dúvida, a qualquer hora e em qualquer lugar.
-*🥸 CogniLens torna tudo isso possível e muito mais.*
+🥸 *CogniLens torna tudo isso possível e muito mais.*
