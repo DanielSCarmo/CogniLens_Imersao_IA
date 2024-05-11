@@ -10,3 +10,12 @@
 **Treino para o vestibulares sem precisar de cursos caros:** Domine  o conteúdo e a arte da redação e conquiste a vaga dos seus sonhos.
 **Assistente de moda inteligente:** Diga adeus à indecisão na hora de se vestir! Receba sugestões personalizadas que valorizam seu estilo.
 CogniLens é a chave para um futuro de aprendizado mais eficiente, envolvente e acessível. Prepare-se para se destacar!
+
+**• Soluções Inteligentes para Desafios Reais: Experimente a Liberdade de Aprender 📌**
+
+💭 **Imagine um futuro onde o aprendizado se adapta às suas necessidades é seja acolhedor:**
+
+**Treine redações** para o ENEM sem gastar fortunas em cursos ou correções e obtenha resultados excepcionais.
+**Elimine a indecisão** na hora de se vestir com sugestões personalizadas que valorizam seu estilo.
+**Receba orientação instantânea** para qualquer dúvida, a qualquer hora e em qualquer lugar.
+*🥸 CogniLens torna tudo isso possível e muito mais.*
