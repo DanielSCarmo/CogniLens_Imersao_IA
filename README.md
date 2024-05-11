@@ -1,5 +1,6 @@
 # CogniLens_Imersao_IA 🎓
 (🧠) Nosso projeto consiste no desenvolvimento de um protótipo inicial de óculos integrado com a inteligência artificial Gemini. O dispositivo incluirá uma câmera e um fone de ouvido para a transmissão e recebimento de informações da IA. 🕶️
+
 • Educação 4.0: Desbloqueie um Mundo de Aprendizagem Ilimitado com CogniLens 
 
 Cansado de métodos tradicionais que te prendem em uma caixa? Experimente a revolução educacional que transforma a forma como você aprende - CogniLens. Nosso óculos inteligente, impulsionado por inteligência artificial de ponta, abre as portas para um universo de possibilidades:
