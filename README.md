@@ -25,6 +25,8 @@ CogniLens é a chave para um futuro de aprendizado mais eficiente, envolvente e 
 
 ***Se interessou? Que tal dar uma passada no nosso site! ->*** https://lightcyan-hawk-ynqjrja41pi0nx2n.builder-preview.com/
 
+**Além de informações sobre o protótipo também possuimos um mapa mental interativo, fora isso há também meios de contato, tá esperando o que? Da uma passadinha lá.**
+
 **• CogniLens vs Apple Vision Pro:**
 
 😵‍💫 Enquanto o Aphe Vision Pro oferece recursos de realidade aumentada, CogniLens busca apenas te auxiliar no dia a dia, integrando inteligência artificial de última geração para criar uma experiência de aprendizado verdadeiramente transformadora:
